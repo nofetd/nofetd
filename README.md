@@ -1,4 +1,4 @@
-### Hi there i'm Nofet 👋
+### Hi:) i'm Nofet 👋
 
 ### Software Engineering Student at Ben Gurion University
 
